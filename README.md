@@ -1,4 +1,0 @@
-# opentechn
-# opentechn
-# opentechn
-# opentechn
